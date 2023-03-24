@@ -1,2 +1,2 @@
-# s23wa33Beepeta
+# s23wa33beepeta
 This is swathi Beepeta
